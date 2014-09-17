@@ -1,4 +1,4 @@
-<!-- Here is the opening of Beowulf, Grendel was much better lets change it to that. -->
+<!-- Here is the opening of Beowulf, The Knights Tale from Canturbury Tales was much better, lets change it to that. -->
 
 Hwæt! We Gar-Dena   in gear-dagum
 

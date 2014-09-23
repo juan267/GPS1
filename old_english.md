@@ -1,49 +1,7 @@
-<!-- Here is the opening of Beowulf, The Knights Tale from Canturbury Tales was much better, lets change it to that. -->
+Cousins Arcite and Palamon are captured and imprisoned by Theseus, duke of Athens following his battle against Creon. Their cell is in the tower of Theseus's castle which overlooks his palace garden. In prison Palamon wakes early one morning in May, to see Emily (Emelye) in the courtyard. He instantly falls in love with her; his moan is heard by Arcite, who then too wakes to see Emily, and falls in love with her as well.
 
-Hwæt! We Gar-Dena   in gear-dagum
+The competition brought about by this love causes them to hate each other. After some years, Arcite is released from prison through the good offices of Theseus's friend Pirithoos, and then returns to Athens in disguise and enters service in Emily's household. Palamon eventually escapes by drugging the jailer and while hiding in a grove overhears Arcite singing about love and fortune.
 
-þeod-cyninga,   þrym gefrunon,
-
-hu ða æþelingas   ellen fremedon!
-
-Oft Scyld Scefing   sceaþena þreatum
-
-monegum mægþum   meodo-setla ofteah;
-
-egsode eorl[as]   syððan ærest wearð
-
-feasceaft funden;   he þæs frofre gebad,
-
-weox under wolcnum,   weorð-myndum þah,
-
-oðæt him æghwylc   þara ymb-sittendra
-
-ofer hron-rade   hyran scolde,
-
-gomban gyldan.   Þæt wæs god cyning!
-
-
-
-What were we War-Danes in our yore-days?
-
-Tribal-Kings! Truly cast that glory past,
-
-how the counts had courage vast!
-
-Oft Scyld Scefing shed Eotens'
-
-many sons of mead-seats often.
-
-Awesome Earl; since erst a whelp
-
-fund-shorn found, was offered help.
-
-Waxed under welkin, won worth-prestige
-
-until all areas we edged with were beseiged
-
-over the whale-road, wide wealth did they bring:
-
-gave up their gold. That was a good king!
+They begin to duel with each other over who should get Emily, but are thwarted by the arrival of Theseus, who sentences them to gather 100 men apiece and to fight a mass judicial tournament, the winner of which is to marry Emily. The forces assemble; Palamon prays to Venus to make Emily his wife; Emily prays to Diana to stay unmarried and that if that should prove impossible that she marry the one who really loves her; and Arcite prays to Mars for victory. Theseus lays down rules for the tournament so that if any man becomes seriously injured, he must be dragged out of the battle and is no longer in combat. Because of this, the story seems to claim at the end that there were almost no deaths on either side. Although both Palamon and Arcite fight valiantly, Palamon is wounded by a sword thrust from one of Arcite's men, and is unhorsed. Theseus declares the fight to be over. Arcite wins the battle, but following an intervention by Saturn, is wounded by his horse throwing him off and then falling on him before he can claim Emily as his prize. As he dies, he tells Emily that she should marry Palamon, because he would make a good husband for her, and so Palamon marries Emily. Therefore all prayers were fulfilled by the gods for those who asked for their assistance.
 
 
